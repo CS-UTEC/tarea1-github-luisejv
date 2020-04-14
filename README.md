@@ -1,1 +1,1 @@
-|Luis Jáuregui Vera | 201910518 |
+| Luis Jáuregui Vera | 201910518 |
